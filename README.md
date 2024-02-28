@@ -21,8 +21,8 @@
             * Leslie Shay
                 * Violet Mikami 
 ### Más información de la serie
-    - (https://es.wikipedia.org/wiki/Chicago_Fire_(serie_de_televisi%C3%B3n))
-        - (https://www.justwatch.com/mx/serie/chicago-fire)
+    (https://es.wikipedia.org/wiki/Chicago_Fire_(serie_de_televisi%C3%B3n))
+    (https://www.justwatch.com/mx/serie/chicago-fire)
 
 ### Algunas imágenes de la Serie
 ![Publicidad de la serie.](https://www.bing.com/images/search?view=detailV2&ccid=bjCLf5oQ&id=8E6ACDD9375D7961F94DC73178ED9BF67958FCD7&thid=OIP.bjCLf5oQq6uMJhjthnSPCwHaJ4&mediaurl=https%3a%2f%2ffr.web.img6.acsta.net%2fpictures%2f17%2f10%2f25%2f12%2f28%2f0781459.jpg&cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.6e308b7f9a10abab8c2618ed86748f0b%3frik%3d1%252fxYefab7Xgxxw%26pid%3dImgRaw%26r%3d0&exph=1600&expw=1200&q=chicago+fire+serie&simid=607997095818916202&FORM=IRPRST&ck=34A2204E246917F5C53A4DA622C25402&selectedIndex=1&itb=0&ajaxhist=0&ajaxserp=0)
